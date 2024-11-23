@@ -1,1 +1,0 @@
-# Sosyal-Medya-da-Yapay-Zeka
